@@ -17,6 +17,4 @@ Team member: UMA MAHEESWARI
 
 
 
-Demo Vedio Link:
 
-https://drive.google.com/file/d/1Exbfq1 
